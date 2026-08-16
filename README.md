@@ -1,5 +1,9 @@
 # 📅 COSV5 每日精选资源索引
 
+<p align="center">
+  <img src="logo.png" alt="COSV5 Logo" width="160">
+</p>
+
 **Cosplay 精选资源 · 每日更新** — 纯文字索引，无媒体文件
 
 > 上百个资源站会员 · 精选直发 · 加入社群：[@COSV5_COM](https://t.me/COSV5_COM) | [cosv5.vip](https://cosv5.vip)
