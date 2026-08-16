@@ -10,7 +10,7 @@
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 55 条精选，含标题与详情
+> 最近 30 天 54 条精选，含标题与详情
 
 ### 📅 2026-08-15
 
@@ -81,12 +81,11 @@
 - [艾西Aiwest - 蔚蓝档案 志美子[26P-593MB]](https://t.me/COSV5_VIP/1957?single)
 ### 📅 2026-07-25
 
+- [🎬 铁手叫兽·会员花絮 (30+套作品)](https://t.me/COSV5_VIP/1929)
 - [叫兽 - 会员花絮 居家睡裙[23P1V-2.7GB]](https://t.me/COSV5_VIP/1952?single)
 - [叫兽 - 会员花絮 避难所的秘密[28P1V-2.98GB]](https://t.me/COSV5_VIP/1947?single)
-- [叫兽 - 会员花絮 口罩妹 和服[11P1V-1.37GB]](https://t.me/COSV5_VIP/1929)
 - [叫兽 - 会员花絮 蔚蓝档案[9P1V-693MB]](https://t.me/COSV5_VIP/1919?single)
 - [叫兽 - 会员花絮 我和牛牛有个约会[81P1V-4.4GB]](https://t.me/COSV5_VIP/1914?single)
-- [饭堂 - 碧蓝航线 金狮 浴室[37P1V-1.36GB]](https://t.me/+0ruNBs3UPMZhNWNl)
 ### 📅 2026-07-22
 
 - [樱桃喵 - 心跳不息[48P1V-1.47GB]](https://t.me/COSV5_VIP/1899?single)
