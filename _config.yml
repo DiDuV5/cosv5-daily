@@ -10,7 +10,7 @@ baseurl: "/cosv5-daily"
 # SEO
 twitter:
   username: DiDuV5
-og_image: "https://raw.githubusercontent.com/DiDuV5/DiDuV5/main/logo.png"
+# og_image 暂缺(无 logo 图), 后续有品牌图再补
 
 # 页面列表(便于 Jekyll 渲染全部 md)
 include:
