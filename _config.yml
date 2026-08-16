@@ -1,0 +1,26 @@
+---
+# Jekyll 配置 — cosv5-daily
+title: "COSV5 每日精选资源索引"
+description: "Cosplay 精选资源每日更新索引。COSV5 社群 — 上百个资源站会员精选直发。加入 Telegram 社群 @COSV5_COM。"
+lang: zh-CN
+author: DiDuV5
+url: "https://diduv5.github.io/cosv5-daily"
+baseurl: "/cosv5-daily"
+
+# SEO
+twitter:
+  username: DiDuV5
+og_image: "https://raw.githubusercontent.com/DiDuV5/DiDuV5/main/logo.png"
+
+# 页面列表(便于 Jekyll 渲染全部 md)
+include:
+  - recent.md
+  - ai-drama.md
+  - docs
+
+# 默认布局(无主题时按原始 md 输出)
+defaults:
+  - scope:
+      path: ""
+    values:
+      layout: none

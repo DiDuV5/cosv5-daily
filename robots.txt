@@ -1,0 +1,5 @@
+# robots.txt — 允许全部爬虫收录
+User-agent: *
+Allow: /
+
+Sitemap: https://diduv5.github.io/cosv5-daily/sitemap.xml
