@@ -1,16 +1,16 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-17 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-08-18 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## 🆕 今日新流出 (自动索引)
 
 > 以下为 @COSV5_VIP 今日发布内容索引（共 1 组，点击查看原帖）
 
-- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2257)
+- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2275)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 56 条精选，含标题与详情
+> 最近 30 天 45 条精选，含标题与详情
 
 ### 📅 2026-07-25
 
@@ -97,19 +97,6 @@
 
 - [二阶堂 - 粉红[12P2V-38MB]](https://t.me/COSV5_VIP/1893?single)
 - [曲奇软fufu - 鸣潮 达妮娅[30P3V-139MB]](https://t.me/COSV5_VIP/1888?single)
-### 📅 2026-07-18
-
-- [布丁大法 - 💙🖤[22P2V-119MB]](https://t.me/COSV5_VIP/1879)
-- [欧翼翼O11 - 棕色尘埃2 達菲[79P4V-9.83GB]](https://t.me/COSV5_VIP/1870?single)
-- [桜井宁宁 - 小狗狗[14P-113MB]](https://t.me/COSV5_VIP/1861)
-- [饭堂 - 26.7 紫色电话 人妻[36P1V-840MB]](https://t.me/COSV5_VIP/1856?single)
-- [桜井宁宁 - 假日黑丝[18P-143MB]](https://t.me/COSV5_VIP/1847)
-- [布丁大法 - 银比基尼[29P-21MB]](https://t.me/COSV5_VIP/1838)
-- [桜井宁宁 - 死库水[57P1V-339MB]](https://t.me/COSV5_VIP/1832)
-- [日奈娇 - 死库水[130P-953MB]](https://t.me/COSV5_VIP/1823?single)
-- [桜井宁宁 - 灰丝睡衣[49P1V-353MB]](https://t.me/COSV5_VIP/1805?single)
-- [布丁大法 - 桃色丁字裤[20P2V-92MB]](https://t.me/COSV5_VIP/1796?single)
-- [布丁大法 - 蓝色蕾丝💙[22P2V-152MB]](https://t.me/COSV5_VIP/1787?single)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
