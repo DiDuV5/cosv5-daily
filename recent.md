@@ -1,16 +1,10 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-18 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
-
-## 🆕 今日新流出 (自动索引)
-
-> 以下为 @COSV5_VIP 今日发布内容索引（共 1 组，点击查看原帖）
-
-- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2275)
+> 更新于 2026-08-19 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 45 条精选，含标题与详情
+> 最近 30 天 43 条精选，含标题与详情
 
 ### 📅 2026-07-25
 
@@ -93,10 +87,6 @@
 ### 📅 2026-07-22
 
 - [樱桃喵 - 心跳不息[48P1V-1.47GB]](https://t.me/COSV5_VIP/1899?single)
-### 📅 2026-07-19
-
-- [二阶堂 - 粉红[12P2V-38MB]](https://t.me/COSV5_VIP/1893?single)
-- [曲奇软fufu - 鸣潮 达妮娅[30P3V-139MB]](https://t.me/COSV5_VIP/1888?single)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
