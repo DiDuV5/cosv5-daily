@@ -1,10 +1,16 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-21 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-08-22 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+
+## 🆕 今日新流出 (自动索引)
+
+> 以下为 @COSV5_VIP 今日发布内容索引（共 1 组，点击查看原帖）
+
+- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2311)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 43 条精选，含标题与详情
+> 最近 30 天 42 条精选，含标题与详情
 
 ### 📅 2026-07-25
 
@@ -84,9 +90,6 @@
 - [叫兽 - 会员花絮 蔚蓝档案[9P1V-693MB]](https://t.me/COSV5_VIP/1919?single)
 - [叫兽 - 会员花絮 我和牛牛有个约会[81P1V-4.4GB]](https://t.me/COSV5_VIP/1914?single)
 - [饭堂 - 碧蓝航线 金狮 浴室[37P1V-1.36GB]](https://t.me/+0ruNBs3UPMZhNWNl)
-### 📅 2026-07-22
-
-- [樱桃喵 - 心跳不息[48P1V-1.47GB]](https://t.me/COSV5_VIP/1899?single)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
