@@ -1,10 +1,10 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-25 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-08-26 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 35 条精选，含标题与详情
+> 最近 30 天 32 条精选，含标题与详情
 
 ### 📅 2026-08-15
 
@@ -68,11 +68,6 @@
 ### 📅 2026-07-27
 
 - [一色雨 - 碧蓝航线 布雷斯特[50P-2GB]](https://t.me/COSV5_VIP/1984?single)
-### 📅 2026-07-26
-
-- [钛合金TITI - 天琊[104P3V-1.29GB]](https://t.me/COSV5_VIP/1975?single)
-- [清水凪 - 无职转生 艾莉丝[46P-125MB]](https://t.me/COSV5_VIP/1966?single)
-- [艾西Aiwest - 蔚蓝档案 志美子[26P-593MB]](https://t.me/COSV5_VIP/1957?single)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
