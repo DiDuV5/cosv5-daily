@@ -1,10 +1,16 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-26 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-08-27 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+
+## 🆕 今日新流出 (自动索引)
+
+> 以下为 @COSV5_VIP 今日发布内容索引（共 1 组，点击查看原帖）
+
+- 📁 5 张/条 — [查看](https://t.me/COSV5_VIP/2388)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 32 条精选，含标题与详情
+> 最近 30 天 31 条精选，含标题与详情
 
 ### 📅 2026-08-15
 
@@ -65,9 +71,6 @@
 ### 📅 2026-07-28
 
 - [Tamaki桥本环爱 - 生日限定[168P43V-9.17GB]](https://t.me/COSV5_VIP/1993?single)
-### 📅 2026-07-27
-
-- [一色雨 - 碧蓝航线 布雷斯特[50P-2GB]](https://t.me/COSV5_VIP/1984?single)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
