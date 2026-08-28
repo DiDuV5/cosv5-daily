@@ -1,17 +1,46 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-27 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
-
-## 🆕 今日新流出 (自动索引)
-
-> 以下为 @COSV5_VIP 今日发布内容索引（共 1 组，点击查看原帖）
-
-- 📁 5 张/条 — [查看](https://t.me/COSV5_VIP/2388)
+> 更新于 2026-08-28 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 31 条精选，含标题与详情
+> 最近 30 天 47 条精选，含标题与详情
 
+### 📅 2026-08-27
+
+- [钛合金TiTi - 并蒂蓮[120P-1.92GB]](https://t.me/COSV5_VIP/2389)
+- [九曲Jean - 2026生日图[40P6V-1.7GB]](https://t.me/COSV5_VIP/2384?single)
+### 📅 2026-08-26
+
+- [Nyako喵子 - 電子版81 熟女エロエロ(2608)[175P2V-2.5GB]](https://t.me/COSV5_VIP/2375)
+- [Nyako喵子 - 电子版81 自拍[101P-92MB]](https://t.me/COSV5_VIP/2366)
+- [Nyako喵子 - 电子版80 オフィスレディー(2607)[143P2V-2.3GB]](https://t.me/COSV5_VIP/2357)
+- [Nyako喵子 - 电子版80 自拍[102P-95MB]](https://t.me/COSV5_VIP/2348)
+### 📅 2026-08-24
+
+- [氢氧化钡 - 灰姑娘 咖啡女仆[48P-509MB]](https://t.me/COSV5_VIP/2339)
+### 📅 2026-08-23
+
+- [蘑菇头 - 校服泳衣[47P-80MB]](https://t.me/COSV5_VIP/2330)
+### 📅 2026-08-22
+
+- [不呆猫的闺蜜 - 水波荡漾[65P1V-743MB]](https://t.me/COSV5_VIP/2321)
+- [不呆猫& 闺蜜 - 闺蜜的秘密[64P1V-1.74GB]](https://t.me/COSV5_VIP/2312)
+### 📅 2026-08-21
+
+- [叫兽 - #会员花絮 #饱饱的摄影会[60P1V-5.32GB]](https://t.me/COSV5_VIP/2303)
+- [洛璃LoLiSAMA - 棕色尘埃2 威廉明娜 Wilhelmina[115P-1.15GB]](https://t.me/COSV5_VIP/2294)
+- [二佐Nisa -私房 黑睡衣[105P2V-7.4GB]](https://t.me/COSV5_VIP/2285)
+### 📅 2026-08-19
+
+- [Nyako喵子 - 自撮り53 情趣旗袍[49P1V-710MB]](https://t.me/COSV5_VIP/2276)
+### 📅 2026-08-17
+
+- [饭堂 - 26-8 精油 #SPA[41P-1.54GB]](https://t.me/COSV5_VIP/2267)
+- [抱走莫子a - 菲伦场照[16-311MB]](https://t.me/COSV5_VIP/2258)
+### 📅 2026-08-16
+
+- [叫兽 - 会员花 小恶魔[11P-244MB]](https://t.me/COSV5_VIP/2249)
 ### 📅 2026-08-15
 
 - [叫兽&幼水铃衣 - 01双人[48-909MB]](https://t.me/COSV5_VIP/2240?single)
@@ -68,9 +97,6 @@
 ### 📅 2026-07-31
 
 - [钛合金TITI - 蓝环[30P2V-324MB]](https://t.me/COSV5_VIP/2022?single)
-### 📅 2026-07-28
-
-- [Tamaki桥本环爱 - 生日限定[168P43V-9.17GB]](https://t.me/COSV5_VIP/1993?single)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
