@@ -1,6 +1,6 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-28 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-08-29 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
