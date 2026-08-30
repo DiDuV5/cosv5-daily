@@ -1,6 +1,14 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-29 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-08-30 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+
+## 🆕 今日新流出 (自动索引)
+
+> 以下为 @COSV5_VIP 今日发布内容索引（共 3 组，点击查看原帖）
+
+- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2426)
+- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2417)
+- 📁 5 张/条 — [查看](https://t.me/COSV5_VIP/2407)
 
 ## ⭐ 精选 (人工整理)
 
