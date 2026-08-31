@@ -1,19 +1,20 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-30 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
-
-## 🆕 今日新流出 (自动索引)
-
-> 以下为 @COSV5_VIP 今日发布内容索引（共 3 组，点击查看原帖）
-
-- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2426)
-- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2417)
-- 📁 5 张/条 — [查看](https://t.me/COSV5_VIP/2407)
+> 更新于 2026-08-31 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 47 条精选，含标题与详情
+> 最近 30 天 53 条精选，含标题与详情
 
+### 📅 2026-08-30
+
+- [洛璃LoLiSAMA - 碧蓝航线 镇海[91P-1.23GB]](https://t.me/COSV5_VIP/2441)
+- [云溪溪 - A53 铃间 清妙[126P1V-4GB]](https://t.me/COSV5_VIP/2432)
+- [蘑菇头 - 粉色蕾丝[17P-161MB]](https://t.me/COSV5_VIP/2427)
+- [薇娅 - 摄影师随拍[6P+7P-509MB]](https://t.me/COSV5_VIP/2418)
+- [日奈娇 - 白月光[220P2V-1.68GB]](https://t.me/COSV5_VIP/2409)
+- [叫兽&三上鱼亚 - 会员花絮 小鱼的变装秀[47P1V-1.33GB]](https://t.me/COSV5_VIP/2403)
+- [小林兒 - 巨乳 痴女[214P1V-1GB]](https://t.me/COSV5_VIP/2398)
 ### 📅 2026-08-27
 
 - [钛合金TiTi - 并蒂蓮[120P-1.92GB]](https://t.me/COSV5_VIP/2389)
@@ -102,9 +103,6 @@
 - [蘑菇头 - 会员花絮 圣女[37P1V-3.34GB]](https://t.me/COSV5_VIP/2041?single)
 - [年年 - 妩[80P-945MB]](https://t.me/COSV5_VIP/2032?single)
 - [語詩 - 一の情慾慶生福利[229P1V-808MB]](https://t.me/COSV5_VIP/2031)
-### 📅 2026-07-31
-
-- [钛合金TITI - 蓝环[30P2V-324MB]](https://t.me/COSV5_VIP/2022?single)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
