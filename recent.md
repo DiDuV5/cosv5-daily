@@ -1,10 +1,10 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-08-31 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-09-01 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 53 条精选，含标题与详情
+> 最近 30 天 42 条精选，含标题与详情
 
 ### 📅 2026-08-30
 
@@ -90,19 +90,6 @@
 ### 📅 2026-08-02
 
 - [日奈娇 - 巫女[41P-55MB]](https://t.me/COSV5_VIP/2100)
-### 📅 2026-08-01
-
-- [蘑菇头 - 会员花絮 红黑和服[66P1V-2.35GB]](https://t.me/COSV5_VIP/2095)
-- [年年 - 面具[84P-876MB]](https://t.me/COSV5_VIP/2086)
-- [蘑菇头 - 会员花絮 粉白和服[26P1V-1.23GB]](https://t.me/COSV5_VIP/2081)
-- [蘑菇头 - 会员花絮 JK露出[32P1V-2.53GB]](https://t.me/COSV5_VIP/2076)
-- [蘑菇头 - 会员花絮 踏青[43P1V-2.63GB]](https://t.me/COSV5_VIP/2067?single)
-- [蘑菇头 - 会员花絮 粉色兔兔[28P-175MB]](https://t.me/COSV5_VIP/2058?single)
-- [叫兽 - 会员花絮 小g大尾巴[12P1V-2.42GB]](https://t.me/COSV5_VIP/2055?single)
-- [年年 - 浅色芭蕾[83P-797MB]](https://t.me/COSV5_VIP/2046?single)
-- [蘑菇头 - 会员花絮 圣女[37P1V-3.34GB]](https://t.me/COSV5_VIP/2041?single)
-- [年年 - 妩[80P-945MB]](https://t.me/COSV5_VIP/2032?single)
-- [語詩 - 一の情慾慶生福利[229P1V-808MB]](https://t.me/COSV5_VIP/2031)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
