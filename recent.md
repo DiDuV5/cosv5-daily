@@ -1,10 +1,16 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-09-01 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-09-02 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+
+## 🆕 今日新流出 (自动索引)
+
+> 以下为 @COSV5_VIP 今日发布内容索引（共 1 组，点击查看原帖）
+
+- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2486)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 42 条精选，含标题与详情
+> 最近 30 天 41 条精选，含标题与详情
 
 ### 📅 2026-08-30
 
@@ -87,9 +93,6 @@
 
 - [日奈娇 - 电车上班族 LO[222P5V-1.63GB]](https://t.me/COSV5_VIP/2118)
 - [饭堂 - 26-8 帕萨迪纳 猫咪女仆[35P-1.25GB]](https://t.me/COSV5_VIP/2109)
-### 📅 2026-08-02
-
-- [日奈娇 - 巫女[41P-55MB]](https://t.me/COSV5_VIP/2100)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
