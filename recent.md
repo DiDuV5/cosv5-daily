@@ -1,10 +1,10 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-09-05 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-09-06 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 39 条精选，含标题与详情
+> 最近 30 天 36 条精选，含标题与详情
 
 ### 📅 2026-08-30
 
@@ -78,11 +78,6 @@
 ### 📅 2026-08-07
 
 - [羽生三未 - 甜系 OL[32P-374MB]](https://t.me/COSV5_VIP/2164)
-### 📅 2026-08-06
-
-- [Tamaki桥本环爱 - 小恶魔[136P9V-1.92GB]](https://t.me/COSV5_VIP/2146)
-- [蘑菇头 - 会员花絮 连体泳衣[55P-240MB]](https://t.me/COSV5_VIP/2137)
-- [叫兽 - 会员花絮 娜娜街霸完美曲线[20P1V-2.34GB]](https://t.me/COSV5_VIP/2132)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
