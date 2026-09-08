@@ -1,10 +1,10 @@
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-09-07 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-09-08 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 35 条精选，含标题与详情
+> 最近 30 天 34 条精选，含标题与详情
 
 ### 📅 2026-08-30
 
@@ -72,9 +72,6 @@
 ### 📅 2026-08-09
 
 - [阿薰kaOri - 原神 火神玛薇卡[213P1V-5.41GB]](https://t.me/COSV5_VIP/2182)
-### 📅 2026-08-08
-
-- [清水凪 -《後輩ちゃんの制服4》[66P-152MB]](https://t.me/COSV5_VIP/2173)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
