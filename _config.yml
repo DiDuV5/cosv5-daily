@@ -4,7 +4,7 @@ title: "COSV5 每日精选资源索引"
 description: "Cosplay 精选资源每日更新索引。COSV5 社群 — 上百个资源站会员精选直发。加入 Telegram 社群 @COSV5_COM。"
 lang: zh-CN
 author: DiDuV5
-url: "https://diduv5.github.io/cosv5-daily"
+url: "https://diduv5.github.io"
 baseurl: "/cosv5-daily"
 
 # SEO
@@ -16,11 +16,18 @@ og_image: "https://raw.githubusercontent.com/DiDuV5/cosv5-daily/main/logo.png"
 include:
   - recent.md
   - ai-drama.md
+  - authors.md
   - docs
 
-# 默认布局(无主题时按原始 md 输出)
+# ⚠️ 关键: 必须给所有页面套 default 布局, 否则 Jekyll 输出裸 HTML 片段
+# (无 <!DOCTYPE>/<head>/<title>/meta → Google 无法索引。2026-09-11 修复)
+# 旧配置为 layout: none, 导致全站不可索引。
 defaults:
   - scope:
       path: ""
     values:
-      layout: none
+      layout: default
+
+plugins:
+  - jekyll-sitemap
+  - jekyll-seo-tag

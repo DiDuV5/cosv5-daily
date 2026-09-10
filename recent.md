@@ -1,21 +1,67 @@
+---
+layout: default
+title: "近期精选"
+description: "COSV5 近期精选资源索引 — 更新于 2026-09-11，共 158 条精选。Cosplay 精选直发，加入 Telegram 社群 @COSV5_COM。"
+---
+
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-09-10 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-09-11 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## 🆕 今日新流出 (自动索引)
 
-> 以下为 @COSV5_VIP 今日发布内容索引（共 5 组，点击查看原帖）
+> 以下为 @COSV5_VIP 今日发布内容索引（共 1 组，点击查看原帖）
 
-- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2609)
-- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2600)
-- 📁 5 张/条 — [查看](https://t.me/COSV5_VIP/2591)
-- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2586)
-- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2577)
+- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2654)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 30 条精选，含标题与详情
+> 最近 30 天 54 条精选，含标题与详情
 
+### 📅 2026-09-10
+
+- [羽生三未 - 七夕 白旗袍[43P-473MB]](https://t.me/COSV5_VIP/2646)
+- [羽生三未 - 今汐桃夭灼灼[39P-602MB]](https://t.me/COSV5_VIP/2637)
+- [羽生三未 - 小家碧玉[20P-643MB]](https://t.me/COSV5_VIP/2628)
+- [羽生三未 - 大黑塔[23P-380MB]](https://t.me/COSV5_VIP/2619)
+- [羽生三未 - LO 场照[28P-369MB]](https://t.me/COSV5_VIP/2610)
+### 📅 2026-09-09
+
+- [饭堂 - 26-9 NIKKE 普利瓦蒂[42P-710MB]](https://t.me/COSV5_VIP/2601)
+- [阿薰kaOri - 鸣潮 琳奈[152P8V-1.59GB]](https://t.me/COSV5_VIP/2592)
+- [叫兽 - 会员花絮 小u女仆 2b柔光[20P1V-2.64GB]](https://t.me/COSV5_VIP/2587)
+- [阿薰kaOri - 鸣潮 绯雪[152P21V-4.37GB]](https://t.me/COSV5_VIP/2578)
+- [阿薰kaOri - 鸣潮 达尼亚[196P5V-4.16GB]](https://t.me/COSV5_VIP/2569)
+### 📅 2026-09-08
+
+- [你咕啾啾 - jk 绝对领域 张开腿 喘[2P1V-519MB]](https://t.me/COSV5_VIP/2566)
+- [氢氧化钡 - 蔚蓝档案 明日奈 僵尸[38P-574MB]](https://t.me/COSV5_VIP/2557)
+### 📅 2026-09-07
+
+- [真宝 - 奶牛[42P-423MB]](https://t.me/COSV5_VIP/2548)
+### 📅 2026-09-05
+
+- [Mio - 粉白色吊带袜[21P-10MB]](https://t.me/COSV5_VIP/2537)
+- [凜小姐(Ms. Rin) - 千禧宝贝[18P-57MB]](https://t.me/COSV5_VIP/2532)
+### 📅 2026-09-04
+
+- [momorina - 潤む少女 MOMORINA[80P2V-3.81GB]](https://t.me/COSV5_VIP/2523)
+### 📅 2026-09-03
+
+- [白栎Shirly - EVA 明日香[158P26V-7.28GB]](https://t.me/COSV5_VIP/2514)
+### 📅 2026-09-02
+
+- [饭堂 - 26-9 花园 旗袍[37P-1.46GB]](https://t.me/COSV5_VIP/2505)
+- [饱饱 - 电梯间的接待员[75P1V-5.85GB]](https://t.me/COSV5_VIP/2496)
+- [饱饱 - 健身房的秘密[90P1V-5.51GB]](https://t.me/COSV5_VIP/2487)
+### 📅 2026-09-01
+
+- [年年 - 夏菊[80P-943MB]](https://t.me/COSV5_VIP/2478)
+- [年年 - 棉柔豆沙[80P-3.1GB]](https://t.me/COSV5_VIP/2469)
+- [年年 - 女海盗[80P-736MB]](https://t.me/COSV5_VIP/2460)
+### 📅 2026-08-31
+
+- [思涼poi - 凉波[50P-626MB]](https://t.me/COSV5_VIP/2451)
 ### 📅 2026-08-30
 
 - [洛璃LoLiSAMA - 碧蓝航线 镇海[91P-1.23GB]](https://t.me/COSV5_VIP/2441)
