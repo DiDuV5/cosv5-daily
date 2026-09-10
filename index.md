@@ -18,7 +18,7 @@ description: "Cosplay 精选资源每日更新索引 — 今日新流出 1 组�
 - ⭐ 人工精选：158 条累计
 - 🎬 AI 短剧：13 部
 
-[查看近期精选全部 →](recent.html) ｜ [Coser 索引 →](authors.html)
+[查看近期精选全部 →](recent.html) ｜ [精选总目录 →](picks.html) ｜ [Coser 索引 →](authors.html)
 
 ---
 
