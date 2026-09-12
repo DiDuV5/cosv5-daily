@@ -6,7 +6,7 @@ description: "COSV5 精选资源总目录 — 全部 158 套，按月份归档�
 
 # 📚 精选总目录 (158 套)
 
-> 更新于 2026-09-11 · [Coser 索引](/cosv5-daily/authors.html) · [近期精选](/cosv5-daily/recent.html)
+> 更新于 2026-09-12 · [Coser 索引](/cosv5-daily/authors.html) · [近期精选](/cosv5-daily/recent.html)
 
 ## 按月份
 

@@ -1,22 +1,16 @@
 ---
 layout: default
 title: "近期精选"
-description: "COSV5 近期精选资源索引 — 更新于 2026-09-11，共 158 条精选。Cosplay 精选直发，加入 Telegram 社群 @COSV5_COM。"
+description: "COSV5 近期精选资源索引 — 更新于 2026-09-12，共 158 条精选。Cosplay 精选直发，加入 Telegram 社群 @COSV5_COM。"
 ---
 
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-09-11 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
-
-## 🆕 今日新流出 (自动索引)
-
-> 以下为 @COSV5_VIP 今日发布内容索引（共 1 组，点击查看原帖）
-
-- 📁 9 张/条 — [查看](https://t.me/COSV5_VIP/2654)
+> 更新于 2026-09-12 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 54 条精选，含标题与详情
+> 最近 30 天 53 条精选，含标题与详情
 
 ### 📅 2026-09-10
 
@@ -117,9 +111,6 @@ description: "COSV5 近期精选资源索引 — 更新于 2026-09-11，共 158 
 ### 📅 2026-08-13
 
 - [蘑菇头 - 会员花絮 学生服[57P1V-538MB]](https://t.me/COSV5_VIP/2208?single)
-### 📅 2026-08-12
-
-- [叫兽 - 会员花絮 饱饱 啦啦队服 诱惑[1V-11GB]](https://t.me/COSV5_VIP/2207)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
