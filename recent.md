@@ -1,22 +1,16 @@
 ---
 layout: default
 title: "近期精选"
-description: "COSV5 近期精选资源索引 — 更新于 2026-09-13，共 158 条精选。Cosplay 精选直发，加入 Telegram 社群 @COSV5_COM。"
+description: "COSV5 近期精选资源索引 — 更新于 2026-09-14，共 158 条精选。Cosplay 精选直发，加入 Telegram 社群 @COSV5_COM。"
 ---
 
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-09-13 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
-
-## 🆕 今日新流出 (自动索引)
-
-> 以下为 @COSV5_VIP 今日发布内容索引（共 1 组，点击查看原帖）
-
-- 📁 5 张/条 — [查看](https://t.me/COSV5_VIP/2673)
+> 更新于 2026-09-14 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 52 条精选，含标题与详情
+> 最近 30 天 49 条精选，含标题与详情
 
 ### 📅 2026-09-10
 
@@ -109,11 +103,6 @@ description: "COSV5 近期精选资源索引 — 更新于 2026-09-13，共 158 
 ### 📅 2026-08-15
 
 - [叫兽&幼水铃衣 - 01双人[48-909MB]](https://t.me/COSV5_VIP/2240?single)
-### 📅 2026-08-14
-
-- [抱走莫子a - 葬送的芙莉莲 菲伦限量[165P7V-2.5GB]](https://t.me/COSV5_VIP/2231?single)
-- [钡钡 - 透明兔[31P-317MB]](https://t.me/COSV5_VIP/2226?single)
-- [叫兽&wink是可爱的wink - 洛丽塔 兔熊心形格纹 JSK[66P1V-729MB]](https://t.me/COSV5_VIP/2217?single)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
