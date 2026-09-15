@@ -1,16 +1,16 @@
 ---
 layout: default
 title: "近期精选"
-description: "COSV5 近期精选资源索引 — 更新于 2026-09-14，共 158 条精选。Cosplay 精选直发，加入 Telegram 社群 @COSV5_COM。"
+description: "COSV5 近期精选资源索引 — 更新于 2026-09-15，共 158 条精选。Cosplay 精选直发，加入 Telegram 社群 @COSV5_COM。"
 ---
 
 # 🔥 近期精选 (Recent Picks)
 
-> 更新于 2026-09-14 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
+> 更新于 2026-09-15 · 完整资源在 Telegram：[@COSV5_COM](https://t.me/COSV5_COM) ｜ [cosv5.vip](https://cosv5.vip)
 
 ## ⭐ 精选 (人工整理)
 
-> 最近 30 天 49 条精选，含标题与详情
+> 最近 30 天 48 条精选，含标题与详情
 
 ### 📅 2026-09-10
 
@@ -100,9 +100,6 @@ description: "COSV5 近期精选资源索引 — 更新于 2026-09-14，共 158 
 ### 📅 2026-08-16
 
 - [叫兽 - 会员花 小恶魔[11P-244MB]](https://t.me/COSV5_VIP/2249)
-### 📅 2026-08-15
-
-- [叫兽&幼水铃衣 - 01双人[48-909MB]](https://t.me/COSV5_VIP/2240?single)
 
 ---
 *COSV5 — 让已经流出的优质资源，触达更多爱好者*
