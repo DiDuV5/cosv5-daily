@@ -6,7 +6,7 @@ description: "COSV5 收录 60 位 Coser 的精选作品索引（共 158 套）�
 
 # 👩 Coser 索引
 
-> 按 coser 名整理的精选索引 · 共 60 位 · **158 套** · 更新于 2026-10-17
+> 按 coser 名整理的精选索引 · 共 60 位 · **158 套** · 更新于 2026-10-19
 > 完整资源在 Telegram 社群：[@COSV5_COM](https://t.me/COSV5_COM)
 
 ## CatDemon你的喵崽 (1 套)
