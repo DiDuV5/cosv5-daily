@@ -1,6 +1,6 @@
 # COSV5 精选索引
 
-**158 套作品 · 60 位 coser · 更新于 2026-09-10**  
+**243 套作品 · 97 位 coser · 更新于 2026-11-15**  
 在线版（可搜索 / 按月份筛选）：[https://diduv5.github.io/cosv5-daily/](https://diduv5.github.io/cosv5-daily/)
 
 纯文字索引，不含媒体文件。点条目直达 Telegram 原帖。
@@ -9,8 +9,93 @@
 
 ---
 
-## 全部条目（158）
+## 全部条目（243）
 
+- [碧蓝航线 天狼星誓约](https://t.me/COSV5_VIP/3492) — 夏夏子(Natsuko · 100P3V-908MB · 2026-11-15
+- [鸣潮 心月狐](https://t.me/COSV5_VIP/3483) — 夏夏子(Natsuko · 118P4V-1.22GB · 2026-11-15
+- [NIKKE 拉毗泳装](https://t.me/COSV5_VIP/3474) — 夏夏子(Natsuko · 79P1V-507MB · 2026-11-15
+- [齁齁僵尸](https://t.me/COSV5_VIP/3464) — 饭堂 · 41P-1.69GB · 2026-11-13
+- [尼尔 2B 兔女郎](https://t.me/COSV5_VIP/3459) — 清水由乃 · 77P-993MB · 2026-11-12
+- [蔚蓝档案 天雨亚子](https://t.me/COSV5_VIP/3453) — 蜜瓜冻冻乳 · 27P1V-484MB · 2026-11-11
+- [26.10 真爱特写包](https://t.me/COSV5_VIP/3444) — 纸悦Etsu_ko · 94P-1.14GB · 2026-11-10
+- [私房浴室](https://t.me/COSV5_VIP/3439) — 二佐Nisa · 45P3V-6.11GB · 2026-11-10
+- [武装女子](https://t.me/COSV5_VIP/3434) — 纸悦Etsu_ko · 39P-548MB · 2026-11-10
+- [2026年10月 计划-A](https://t.me/COSV5_VIP/3425) — 星之迟迟 · 156P-990MB · 2026-11-06
+- [蔚蓝档案 妃咲 黑白游戏 02](https://t.me/COSV5_VIP/3420) — 凉月MAYOi · 53P-943MB · 2026-11-05
+- [蔚蓝档案 妃咲 黑白游戏 01](https://t.me/COSV5_VIP/3415) — 凉月MAYOi · 60P-1.13GB · 2026-11-05
+- [蔚蓝档案 杏山和纱 同人手办](https://t.me/COSV5_VIP/3410) — 纸悦Etsu_ko · 59P-931MB · 2026-11-05
+- [碧蓝航线 新泽西花园 旗袍](https://t.me/COSV5_VIP/3405) — 氢氧化钡 · 68P3V-3.3GB · 2026-11-04
+- [永劫无间 玉玲珑 小僵尸](https://t.me/COSV5_VIP/3400) — 羊之甘露 · 77P9V-952MB · 2026-11-04
+- [碧蓝航线 腓特烈卡尔·贞子](https://t.me/COSV5_VIP/3395) — 饭堂 · 47P-1.53GB · 2026-11-03
+- [月光](https://t.me/COSV5_VIP/3390) — 年年 · 80P-922MB · 2026-11-02
+- [眸](https://t.me/COSV5_VIP/3385) — 年年 · 80P-693MB · 2026-11-02
+- [鸣潮 清宵](https://t.me/COSV5_VIP/3380) — 羽生三未 · 80P-1.1GB · 2026-11-02
+- [红绯](https://t.me/COSV5_VIP/3375) — 年年 · 80P-692MB · 2026-11-02
+- [鸣潮 穗穗](https://t.me/COSV5_VIP/3370) — 兎团子OxO · 28P-0.99GB · 2026-11-02
+- [万圣康纳](https://t.me/COSV5_VIP/3365) — 蘑菇头 · 32P-297MB · 2026-11-01
+- [缘之空 春日野穹 居家](https://t.me/COSV5_VIP/3360) — 兔团子OxO · 50P1V-2.8GB · 2026-11-01
+- [人妻](https://t.me/COSV5_VIP/3355) — 西园寺南歌 · 45P-256MB · 2026-11-01
+- [地牢爬行卡尔 卡尔电视机 万圣节](https://t.me/COSV5_VIP/3350) — 九曲Jean · 30P6V-1.48GB · 2026-10-31
+- [异色泰迪熊猎人（但没有泰迪熊）](https://t.me/COSV5_VIP/3345) — 贝贝琪Becky · 40P3V-352MB · 2026-10-31
+- [邻家妹妹](https://t.me/COSV5_VIP/3340) — 西园寺南歌 · 45P-271MB · 2026-10-30
+- [汤姆梦中情猫](https://t.me/COSV5_VIP/3335) — 一口子子 · 43P1V-173MB · 2026-10-30
+- [拉拉队 校花](https://t.me/COSV5_VIP/3330) — 岑熙 · 234P1V-558MB · 2026-10-29
+- [万圣节光辉](https://t.me/COSV5_VIP/3325) — 洛璃LoLiSAMA · 43P1V-603MB · 2026-10-28
+- [母女被歹徒强迫](https://t.me/COSV5_VIP/3320) — 希希& 璐璐 · 83P-1.36GB · 2026-10-28
+- [厨娘](https://t.me/COSV5_VIP/3315) — 西园寺南歌 · 30P-180MB · 2026-10-28
+- [碧蓝航线 尾张 奶牛围裙](https://t.me/COSV5_VIP/3310) — 芝心蛋奶烧 · 287P5V-993MB · 2026-10-27
+- [入门合集](https://t.me/COSV5_VIP/3305) — 西园寺南歌 · 25P2V-357MB · 2026-10-26
+- [JK 兽耳](https://t.me/COSV5_VIP/3301) — 西园寺南歌 · 28P-111MB · 2026-10-26
+- [尼尔 2B Automata 休息のひととき](https://t.me/COSV5_VIP/3296) — 半半子(BANBANKO · 56P3V-417MB · 2026-10-26
+- [会员散集](https://t.me/COSV5_VIP/3287) — 白露Mizu · 170P3V-309MB · 2026-10-26
+- [永劫无间 玉玲珑 谪星](https://t.me/COSV5_VIP/3282) — 饭堂 · 29P-766MB · 2026-10-24
+- [麻将老板娘](https://t.me/COSV5_VIP/3277) — 饭堂 · 39P-818MB · 2026-10-24
+- [明日方舟 阿米娅 奶糖](https://t.me/COSV5_VIP/3268) — 冥海水母 · 181P-2.21GB · 2026-10-22
+- [幽梦](https://t.me/COSV5_VIP/3263) — 摄影师雷鬼 · 41P-575MB · 2026-10-22
+- [苗疆月影](https://t.me/COSV5_VIP/3258) — Bangni邦尼 · 74P-1GB · 2026-10-22
+- [旷野回响](https://t.me/COSV5_VIP/3253) — 摄影师雷鬼 · 40P-835MB · 2026-10-22
+- [中华女仆](https://t.me/COSV5_VIP/3248) — Tamaki桥本环爱 · 112P-993MB · 2026-10-21
+- [水浴](https://t.me/COSV5_VIP/3243) — 下饭樱桃子 · 75P-922MB · 2026-10-21
+- [红兔子](https://t.me/COSV5_VIP/3238) — 一口牙牙 · 61P2V-798MB · 2026-10-20
+- [人妻さんは维修工](https://t.me/COSV5_VIP/3233) — 星澜是澜澜叫澜妹呀 · 87P1V-1.62GB · 2026-10-19
+- [街头霸王 春丽 嘉米 双人(Mia&titi)](https://t.me/COSV5_VIP/3228) — 钛合金 · 55P-506MB · 2026-10-18
+- [红色礼服 长裙](https://t.me/COSV5_VIP/3223) — 源纱希喵喵喵 · 28P-1.5GB · 2026-10-18
+- [巫女 束缚](https://t.me/COSV5_VIP/3218) — 比奇堡黄塞方块 · 32P2V-248MB · 2026-10-18
+- [黑色礼服](https://t.me/COSV5_VIP/3214) — 源纱希喵喵喵 · 31P-1.69GB · 2026-10-18
+- [间谍×过家家 约尔小姐](https://t.me/COSV5_VIP/3209) — 比奇堡黄塞方块 · 36P2V-403MB · 2026-10-18
+- [鸣潮 心月狐](https://t.me/COSV5_VIP/3199) — 洛璃(LoLiSAMA · 100P-1.87GB · 2026-10-16
+- [蔚蓝档案 飞鸟马时](https://t.me/COSV5_VIP/3194) — 脆糕yaki · 75P4V-2.11GB · 2026-10-16
+- [绝区零 千夏](https://t.me/COSV5_VIP/3189) — Tamaki桥本环爱 · 21P1V-150MB · 2026-10-15
+- [和服](https://t.me/COSV5_VIP/3184) — 莉犬 · 41P-726MB · 2026-10-14
+- [蔚蓝档案 鬼方佳代子 礼服版](https://t.me/COSV5_VIP/3179) — 纸悦Etsu_ko · 34P-441MB · 2026-10-13
+- [春丽私房[64-1.44GB]](https://t.me/COSV5_VIP/3174) — 钛合金TiTi · 2026-10-13
+- [碧蓝航线 美因茨](https://t.me/COSV5_VIP/3169) — 怪兽喵 · 64P-821MB · 2026-10-13
+- [碧蓝航线 信浓](https://t.me/COSV5_VIP/3164) — 脆糕yaki · 75P5V-2.46GB · 2026-10-12
+- [英雄联盟 贝蕾亚](https://t.me/COSV5_VIP/3159) — 钛合金TiTi · 82P-862MB · 2026-10-12
+- [黑神话 亢金龙](https://t.me/COSV5_VIP/3153) — 钛合金TiTi · 62P-692MB · 2026-10-12
+- [碧蓝航线 柴郡 绚烂夜梦](https://t.me/COSV5_VIP/3148) — 二佐Nisa · 30P-1GB · 2026-10-11
+- [圣祈](https://t.me/COSV5_VIP/3143) — 蝉时w · 71P-898MB · 2026-10-11
+- [蜡笔小新](https://t.me/COSV5_VIP/3138) — 蘑菇头 · 21P-117MB · 2026-10-11
+- [私房蓝女仆](https://t.me/COSV5_VIP/3133) — 二佐Nisa · 60P2V-4.99GB · 2026-10-10
+- [碧蓝航线 大凤 兔女郎](https://t.me/COSV5_VIP/3127) — Hamumang · 37P1V-353MB · 2026-10-10
+- [NIKKE 薇尔维特 女仆](https://t.me/COSV5_VIP/3122) — 饭堂 · 45P-1.76GB · 2026-10-10
+- [汤间夜](https://t.me/COSV5_VIP/3117) — 一小央泽 · 90P1V-1.72GB · 2026-10-09
+- [汤间昼](https://t.me/COSV5_VIP/3112) — 一小央泽 · 97P1V-2.62GB · 2026-10-09
+- [碧蓝航线 信浓 相融一梦](https://t.me/COSV5_VIP/3107) — 封疆疆 · 36P-692MB · 2026-10-08
+- [不洁之心](https://t.me/COSV5_VIP/3102) — 兔子病历本 · 107P-2.09GB · 2026-10-07
+- [崩坏 知更鸟 Robin](https://t.me/COSV5_VIP/3097) — 铃木美咲 · 21P1V-980MB · 2026-10-07
+- [崩坏 知更鸟 Robin](https://t.me/COSV5_VIP/3092) — 铃木美咲 · 23P1V-2GB · 2026-10-07
+- [碧蓝航线 阿尔萨斯 婚纱](https://t.me/COSV5_VIP/3087) — 洛璃(LoLiSAMA · 86P-1.45GB · 2026-10-05
+- [棕色尘埃 帕莱特](https://t.me/COSV5_VIP/3082) — 洛璃(LoLiSAMA · 107P-1.12GB · 2026-10-05
+- [死或生 女天狗](https://t.me/COSV5_VIP/3076) — 洛璃(LoLiSAMA · 104P2V-2.74GB · 2026-10-05
+- [NIKKE 海伦](https://t.me/COSV5_VIP/3070) — 洛璃LoLiSAMA · 108P-1.62GB · 2026-10-05
+- [灰色 OL](https://t.me/COSV5_VIP/3060) — 源纱希喵喵喵 · 31P-699MB · 2026-10-03
+- [粉丝群苦力怕限定](https://t.me/COSV5_VIP/3055) — 溜溜猪 · 19P1V-179MB · 2026-10-03
+- [NIKKE 布兰儿](https://t.me/COSV5_VIP/3050) — 源纱希喵喵喵 · 20P-247MB · 2026-10-03
+- [NIKKE 普丽瓦蒂 Sharp Lesson DL版ROM](https://t.me/COSV5_VIP/3041) — 夏夏子(Natsuko · 70P-523MB · 2026-10-02
+- [缘之空 穹妹 睡衣](https://t.me/COSV5_VIP/3032) — 君颜圆又圆 · 74P3V-921MB · 2026-10-02
+- [鸣潮 琳奈 Lynea DL版ROM](https://t.me/COSV5_VIP/3023) — 夏夏子(Natsuko · 70P-598MB · 2026-10-02
+- [逆兔女郎](https://t.me/COSV5_VIP/3018) — 蘑菇头 · 27P-177MB · 2026-10-02
 - [七夕 白旗袍](https://t.me/COSV5_VIP/2646) — 羽生三未 · 43P-473MB · 2026-09-10
 - [今汐桃夭灼灼](https://t.me/COSV5_VIP/2637) — 羽生三未 · 39P-602MB · 2026-09-10
 - [小家碧玉](https://t.me/COSV5_VIP/2628) — 羽生三未 · 20P-643MB · 2026-09-10
@@ -140,7 +225,7 @@
 - [金色巫女 精选](https://t.me/COSV5_VIP/1605) — 泗水的脑袋尖尖 · 61P3V-1.15GB · 2026-06-21
 - [棘罪修女 精选](https://t.me/COSV5_VIP/1591) — 泗水的脑袋尖尖 · 81P4V-928MB · 2026-06-20
 - [#会员花絮 荷光者](https://t.me/COSV5_VIP/1582) — 叫兽 · 40P1V-3.77GB · 2026-06-20
-- [NIKKE 海伦( Helen) 精选](https://t.me/COSV5_VIP/1573) — 泗水的脑袋尖尖 · 43P2V-500MB · 2026-06-19
+- [NIKKE 海伦(Helen) 精选](https://t.me/COSV5_VIP/1573) — 泗水的脑袋尖尖 · 43P2V-500MB · 2026-06-19
 - [圣堂修女 精选](https://t.me/COSV5_VIP/1564) — 日奈娇 · 170P5V-1.68GB · 2026-06-17
 - [赛车娘 精选](https://t.me/COSV5_VIP/1555) — 柒柒_Lust77 · 134P1V-1.99GB · 2026-06-17
 - [衣柜里的兔子 精选](https://t.me/COSV5_VIP/1546) — 清水由乃 · 71P1V-3.15GB · 2026-06-16
