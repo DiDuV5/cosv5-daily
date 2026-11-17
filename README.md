@@ -1,6 +1,6 @@
 # COSV5 精选索引
 
-**243 套作品 · 97 位 coser · 更新于 2026-11-15**  
+**254 套作品 · 99 位 coser · 更新于 2026-11-17**  
 在线版（可搜索 / 按月份筛选）：[https://diduv5.github.io/cosv5-daily/](https://diduv5.github.io/cosv5-daily/)
 
 纯文字索引，不含媒体文件。点条目直达 Telegram 原帖。
@@ -9,8 +9,19 @@
 
 ---
 
-## 全部条目（243）
+## 全部条目（254）
 
+- [鸣潮 心月狐 清宵](https://t.me/COSV5_VIP/3557) — 兔团子OxO · 50P-1.79GB · 2026-11-17
+- [大主宰 清衍静 大胃袋](https://t.me/COSV5_VIP/3552) — 钛合金TiTi · 24P-156MB · 2026-11-17
+- [碧蓝航线 狮·裂口女](https://t.me/COSV5_VIP/3547) — 饭堂 · 41P-2.18GB · 2026-11-16
+- [大主宰 清衍静](https://t.me/COSV5_VIP/3541) — 钛合金TiTi · 123P5V-5.87GB · 2026-11-16
+- [碎星](https://t.me/COSV5_VIP/3536) — Aimeili粒粒 · 59P-823MB · 2026-11-16
+- [碧蓝航线 美因茨](https://t.me/COSV5_VIP/3526) — 洛宝ouo · 45P1V-984MB · 2026-11-16
+- [鸣潮 千咲 女仆](https://t.me/COSV5_VIP/3521) — 兔团子OxO · 23P-799MB · 2026-11-16
+- [情趣婚纱](https://t.me/COSV5_VIP/3516) — 蘑菇头 · 24P-137MB · 2026-11-16
+- [鸣潮 卡提希娅](https://t.me/COSV5_VIP/3511) — 兔团子OxO · 22P-878MB · 2026-11-16
+- [鸣潮 绯雪](https://t.me/COSV5_VIP/3506) — 兔团子OxO · 28P-1.28GB · 2026-11-16
+- [鸣潮 达妮娅](https://t.me/COSV5_VIP/3501) — 兔团子OxO · 27P-819MB · 2026-11-16
 - [碧蓝航线 天狼星誓约](https://t.me/COSV5_VIP/3492) — 夏夏子(Natsuko · 100P3V-908MB · 2026-11-15
 - [鸣潮 心月狐](https://t.me/COSV5_VIP/3483) — 夏夏子(Natsuko · 118P4V-1.22GB · 2026-11-15
 - [NIKKE 拉毗泳装](https://t.me/COSV5_VIP/3474) — 夏夏子(Natsuko · 79P1V-507MB · 2026-11-15
