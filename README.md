@@ -1,6 +1,6 @@
 # COSV5 精选索引
 
-**257 套作品 · 100 位 coser · 更新于 2026-11-17**  
+**261 套作品 · 102 位 coser · 更新于 2026-11-19**  
 在线版（可搜索 / 按月份筛选）：[https://diduv5.github.io/cosv5-daily/](https://diduv5.github.io/cosv5-daily/)
 
 纯文字索引，不含媒体文件。点条目直达 Telegram 原帖。
@@ -9,8 +9,12 @@
 
 ---
 
-## 全部条目（257）
+## 全部条目（261）
 
+- [鸣潮 吟霖](https://t.me/COSV5_VIP/3600) — 兔团子OxO · 22P-940MB · 2026-11-19
+- [绝区零 蕾米埃尔 泳装](https://t.me/COSV5_VIP/3595) — 犬大福 · 60P1V-2.18GB · 2026-11-19
+- [异域](https://t.me/COSV5_VIP/3586) — Aimeli粒粒 · 64P-478MB · 2026-11-18
+- [色欲女修](https://t.me/COSV5_VIP/3581) — Aimeli粒粒 · 55P-415MB · 2026-11-18
 - [DropOut 七条学姐](https://t.me/COSV5_VIP/3576) — 奶茶不叮(milkypurin · 32P1V-61MB · 2026-11-17
 - [2026生日电子版](https://t.me/COSV5_VIP/3567) — 蜜汁猫裘 · 197P1V-8.45GB · 2026-11-17
 - [鸣潮 秧秧 玄翎](https://t.me/COSV5_VIP/3562) — 兔团子OxO · 23P-971MB · 2026-11-17
